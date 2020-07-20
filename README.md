@@ -20,6 +20,6 @@ Here are some ideas to get you started:
 
 > I'm looking for a job
 
-🇨🇳 China Beijing - 💻 Web developer
+🇨🇳 China Beijing - 💻 Web Developer
 
 http://www.wclimb.site
