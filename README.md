@@ -18,8 +18,8 @@ Here are some ideas to get you started:
 -->
 
 
-> Too young!
+> I'm looking for a job
 
-🇨🇳 China Beijing - Web developer
+🇨🇳 China Beijing - 💻 Web developer
 
 http://www.wclimb.site
